@@ -1,0 +1,2 @@
+Only work with Soul gem refiner will update soon for all type of refiner just buy gillion and refiner and will do 
+automatically cella powder until you got no refiner or gillion ( all delay are random )
